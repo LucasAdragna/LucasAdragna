@@ -1,2 +1,1 @@
-
-![Curriculum hombre Profesional con fotografia diseño moderno azul](https://github.com/LucasAdragna/LucasAdragna/assets/126211954/4f6c12f1-fdac-40d2-af95-c85177a472b0)
+![Curriculum hombre Profesional con fotografia diseño moderno azul](https://github.com/LucasAdragna/LucasAdragna/assets/126211954/c536f9fe-c8ab-4052-829e-0e10f6066ccd)
