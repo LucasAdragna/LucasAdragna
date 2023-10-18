@@ -1,3 +1,3 @@
 
 
-![Carta presentación](https://github.com/LucasAdragna/LucasAdragna/assets/126211954/e8cf8de1-5064-418a-aa28-38c6a96619dc)
+![Carta presentación (1)](https://github.com/LucasAdragna/LucasAdragna/assets/126211954/cee6e393-3f7a-4875-9a1e-0941d37039f2)
